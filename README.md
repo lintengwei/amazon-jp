@@ -1,0 +1,1 @@
+about amazon-jp note
